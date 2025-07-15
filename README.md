@@ -1,2 +1,2 @@
 # Ana-Soares
-Marketing Estrategist, Publici
+Marketing Estrategist, Publicity
